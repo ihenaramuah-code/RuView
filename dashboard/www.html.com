@@ -1,0 +1,1 @@
+ I call upon heaven and earth may divine favor, smart strong body, divine abundance of blessings and divine breakthrough miracles with physical charm attractions, physical body including of moving forward with progress, divine favor and prosperity flow and reign upon my life ihenaramuah 
